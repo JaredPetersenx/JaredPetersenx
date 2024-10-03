@@ -11,3 +11,4 @@ Here are some ideas to get you started:
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: im really into music,football,golf and skating
 -->
+LOOM VIDEO JSL11 [https://www.loom.com/share/93401f4a7c7045adadb9b684444fecc8?sid=94cf1128-25ee-420e-ae9f-c0913753259c]
